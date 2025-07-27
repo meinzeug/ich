@@ -1,15 +1,10 @@
-📌 **Unter [github.com/meinzeug/42](https://github.com/meinzeug/42)** diskutieren wir – du, ich, die Crowd und vielleicht auch ein paar Aliens –  
-mit einem Augenzwinkern über den tieferen Unsinn von **42**.  
-Ob das der Sinn des Lebens ist? Keine Ahnung. Aber es macht Spaß. 😄
-
-# 👾 Dennis Wicht, Burrgenlandkreis, Sachsen-Anhalt, Deutschland – geboren 1984
+ 👾 Dennis Wicht, Burrgenlandkreis, Sachsen-Anhalt, Deutschland – geboren 1984
 (ja, Orwell lässt grüßen ;)
 
 > *„Wer dem Glück hinterherrennt, wird es nie einholen.  
 > Man muss ihm einen Ort bauen, an dem es sich niederlassen kann.“*
 
-📌📌📌📌📌📌📌📌📌📌📌📌📌📌📌📌📌📌📌📌📌📌📌📌📌📌📌📌
- **Unter [github.com/meinzeug/42](https://github.com/meinzeug/42)** diskutieren wir – du, ich, die Crowd und vielleicht auch ein paar Aliens –  
+📌 **Unter [github.com/meinzeug/42](https://github.com/meinzeug/42)** diskutieren wir – du, ich, die Crowd und vielleicht auch ein paar Aliens –  
 mit einem Augenzwinkern über den tieferen Unsinn von **42**.  
 Ob das der Sinn des Lebens ist? Keine Ahnung. Aber es macht Spaß. 😄
 
