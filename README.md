@@ -1,8 +1,11 @@
  👾 Dennis Wicht, Burrgenlandkreis, Sachsen-Anhalt, Deutschland – geboren 1984
+ 
 (ja, Orwell lässt grüßen ;)
+
 
 > *„Wer dem Glück hinterherrennt, wird es nie einholen.  
 > Man muss ihm einen Ort bauen, an dem es sich niederlassen kann.“*
+> 
 <img width="77"  alt="6" src="https://github.com/user-attachments/assets/f51c6d8c-c550-4e17-ab95-ba77dd45a1d7" />
 <img width="77"  alt="5" src="https://github.com/user-attachments/assets/f6a3d560-8947-4129-8b94-712ff73219e2" />
 <img width="77" alt="4" src="https://github.com/user-attachments/assets/2f1ce280-b2a3-4c92-b915-13856d3fd277" />
@@ -11,9 +14,11 @@
 <img width="77"  alt="1" src="https://github.com/user-attachments/assets/89845f9e-9d85-4786-9cf4-f4f642440d94" />
 <img width="77"  alt="0" src="https://github.com/user-attachments/assets/86fd1025-829f-4344-ba44-9b39ebef6b36" />
 
+
 📌 **Unter [github.com/meinzeug/42](https://github.com/meinzeug/42)** diskutieren wir – du, ich, die Crowd und vielleicht auch ein paar Aliens –  
 mit einem Augenzwinkern über den tieferen Unsinn von **42**.  
 Ob das der Sinn des Lebens ist? Keine Ahnung. Aber es macht Spaß. 😄
+
 
 ---
 
