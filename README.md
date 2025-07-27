@@ -1,8 +1,13 @@
  👾 Dennis Wicht, 
+ 
  Burrgenlandkreis, 
+ 
  Sachsen-Anhalt, 
+ 
  Deutschland – 
+ 
  geboren 1984
+ 
  
 (ja, Orwell lässt grüßen ;)
 
