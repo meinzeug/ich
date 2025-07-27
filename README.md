@@ -1,6 +1,8 @@
 # 👾 Dennis Wicht, Burrgenlandkreis, Sachsen-Anhalt, Deutschland – geboren 1984
 (ja, Orwell lässt grüßen ;)
 
+<img width="1024" height="1536" alt="me" src="https://github.com/user-attachments/assets/d266e98b-bf8b-497b-8ea0-e72ed4877c86" />
+
 > *„Wer dem Glück hinterherrennt, wird es nie einholen.  
 > Man muss ihm einen Ort bauen, an dem es sich niederlassen kann.“*
 
