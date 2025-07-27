@@ -1,7 +1,10 @@
- 👾 Dennis Wicht, Burrgenlandkreis, Sachsen-Anhalt, Deutschland – geboren 1984
+ 👾 Dennis Wicht, 
+ Burrgenlandkreis, 
+ Sachsen-Anhalt, 
+ Deutschland – 
+ geboren 1984
  
 (ja, Orwell lässt grüßen ;)
-
 
 > *„Wer dem Glück hinterherrennt, wird es nie einholen.  
 > Man muss ihm einen Ort bauen, an dem es sich niederlassen kann.“*
