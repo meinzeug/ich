@@ -80,4 +80,6 @@ Ob du kollaborieren willst, ein Projekt hast, oder einfach das große Ganze nich
 **Let’s connect.**
 
 Wir stehen nicht am Ende.  
-Wir stehen – vielleicht – ganz am Anfang.
+Wir stehen – vielleicht – ganz am Anfang.-------------------------
+
+Uns wenn ich nicht mehr bin, bin ich doch immer bei dir! :-* <3 
